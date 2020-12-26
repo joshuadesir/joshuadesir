@@ -1,12 +1,3 @@
-# <div align="center">Joshua Desir</div>  
-  
-
-<br/>  
-
-
-
- 
-
 
 ## Connect with me  
 <div align="center">
